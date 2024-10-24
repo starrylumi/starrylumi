@@ -8,6 +8,6 @@
 
 ⊱˚₊‧c+h & int r welcome at all times, PLEASE do... ꒰ i need more friends... ꒱ؘ࿐ ࿔*:･
 
-ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking so u may whisper if u want to int w me or smth✧ˊˎ˗
+ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, so u may whisper if u want to int w me, but i check my screen from time to time✧ˊˎ˗
 
 ₊˚ପ⊹what i play ; gi, hsr, evade ꒰ rblx ꒱, pt, crk, gacha and more!ᶻ 𝗓 𐰁˚₊‧꒰ა⋆
