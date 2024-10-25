@@ -11,4 +11,4 @@
 ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, so u may whisper if u want to int w me, but i check my screen from time to time✧ˊˎ˗
 
 ₊˚ପ⊹what i play ; gi, hsr, evade ꒰ rblx ꒱, pt, crk, gacha and more!ᶻ 𝗓 𐰁˚₊‧꒰ა⋆
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=starrylumi&label=˚༘♡profile%20views⋆｡˚ꕥ&color=a8954d&style=flat" alt="starrylumi" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=starrylumi&label=˗ˏˋprofile%20views´ˎ˗&color=a8954d&style=flat" alt="starrylumi" /> </p>
