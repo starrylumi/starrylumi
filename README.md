@@ -2,15 +2,15 @@
 
 ✦
 
-₊˚ʚ ᗢ₊˚namez u can call me r ; willow, lumi, silvia - idm any nicknames that r given ><₊˚⊹♡𓍢𓍢ִ໋
+₊˚ʚ ᗢ₊˚namez u can call me r ; willow, lumi & silvia - idm any nicknames that r given ><₊˚⊹♡𓍢𓍢ִ໋
 
-‧͙⁺˚*･༓☾my pronouns are she/they - bisexual female!༊*·˚
+‧͙⁺˚*･༓☾my pronouns are she/they - bisexual ,, female!༊*·˚
 
 ⊱˚₊‧c+h & int r welcome at all times, PLEASE do... ꒰ i need more friends... ꒱ؘ࿐ ࿔*:･
 
 ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, so u may whisper if u want to int w me, but i check my screen from time to time✧ˊˎ˗
 
-₊˚ପ⊹what i play ; gi, hsr, evade ꒰ rblx ꒱, pt, crk, gacha and more!ᶻ 𝗓 𐰁˚₊‧꒰ა⋆
+₊˚ପ⊹what i play ; gi, hsr, wuwa, evade ꒰ rblx ꒱, pt, crk, lunime gacha games and more!ᶻ 𝗓 𐰁˚₊‧꒰ა⋆
 
 ✦
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=starrylumi&label=˗ˏˋcounting%20stars´ˎ˗&color=a8954d&style=flat" alt="starrylumi" /> </p>
