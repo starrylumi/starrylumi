@@ -8,7 +8,7 @@
 
 ⊱˚₊‧c+h & int r welcome at all times, PLEASE do... ꒰ i need more friends... ꒱ؘ࿐ ࿔*:･
 
-ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, w2i w me, but i check my screen from time to time!✧ˊˎ˗
+ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, if so, w2i w me, but i check my screen from time to time!✧ˊˎ˗
 
 ₊˚ପ⊹what i play ; gi, hsr, wuwa, evade ꒰ rblx ꒱, pt, crk, lunime gacha games and more!ᶻ 𝗓 𐰁˚₊‧꒰ა⋆
 
