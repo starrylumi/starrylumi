@@ -6,6 +6,8 @@
 
 ‧͙⁺˚*･༓☾my pronouns are she/they - bisexual ,, female!༊*·˚
 
+⋅˚₊‧.୨please note that i am a **MINOR**. stop whispering me random and freaky ahh things that i do NOT need to know of. it's simply annoying, and i don't want to deal w yr crap.୧‧₊˚⋅
+
 ⊱˚₊‧c+h & int r welcome at all times, PLEASE do... ꒰ i need more friends... ꒱ؘ࿐ ࿔*:･
 
 ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, if so, w2i w me, but i check my screen from time to time!✧ˊˎ˗
