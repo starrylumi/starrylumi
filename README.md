@@ -12,6 +12,8 @@
 
 ₊˚ପ⊹what i play ; gi, hsr, wuwa, evade ꒰ rblx ꒱, pt, crk, lunime gacha games and more!ᶻ 𝗓 𐰁˚₊‧꒰ა⋆
 
+⁺✧₊
+
 ⋅˚₊‧.୨please note that i am a **MINOR**. stop whispering me random and freaky ahh things that i do NOT need to know of. it's simply annoying, and i don't want to deal w yr crap.୧‧₊˚⋅
 
 ⋆౨ৎ˚⟡˖࣪also note that, i'm not really comfortable w mass jokes of harassment, nsfw or anything similar... ˖♬⋆.˚
