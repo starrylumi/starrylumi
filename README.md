@@ -10,7 +10,7 @@
 
 ⋆౨ৎ˚⟡˖࣪also note that, i'm not really comfortable w mass jokes of harassment, nsfw or anything similar... ˖♬⋆.˚
 
-𓏲⋆ ִֶָ ๋wowie, another note, if i hv dnt/dni in my name, it means i don't want to be bothered/int w anyone, and that i'm in a bad mood. i do **NOT** hv a touch trigger w pixels. don't start randomly assuming things omfg.ɞ˚‧｡⋆
+⋆｡‧˚ʚ๋wowie, another note, if i hv dnt/dni in my name, it means i don't want to be bothered/int w anyone, and that i'm in a bad mood. i do **NOT** hv a touch trigger w pixels. don't start randomly assuming things omfg.ɞ˚‧｡⋆
 
 ⊱˚₊‧c+h & int r welcome at all times ꒰ unless said so in name ꒱, PLEASE do... ꒰ i need more friends... ꒱ؘ࿐ ࿔*:･
 
