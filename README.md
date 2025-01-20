@@ -16,9 +16,7 @@
 
 ⋅˚₊‧.୨please note that i am a **MINOR**. stop whispering me random and freaky ahh things that i do NOT need to know of. it's simply annoying, and i don't want to deal w yr crap.୧‧₊˚⋅
 
-⋆౨ৎ˚⟡˖࣪also note that, i'm not really comfortable w mass jokes of harassment, nsfw or anything similar... ˖♬⋆.˚
-
-⋆｡‧˚ʚ๋wowie, another note, if i hv dnt/dni in my name, it means i don't want to be bothered/int w anyone, and that i'm in a bad mood or upset. i do **NOT** hv a touch trigger w pixels. don't start randomly assuming things omfg.ɞ˚‧｡⋆
+⋆｡‧˚ʚ๋heh.., if i hv dnt/dni in my name, it means i don't want to be bothered/int w anyone, and that i'm in a bad mood or upset. i do **NOT** hv a touch trigger w pixels. don't start randomly assuming things omfg.ɞ˚‧｡⋆
 
 ༄˖°ʚଓ˚no, you're **NOT** allowed to copy or take inspo anything on my page, things in my links and skins all of a sudden. at the least ask, but i'll probably say no.୭.⁺₊✧
 
