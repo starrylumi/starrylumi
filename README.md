@@ -18,7 +18,7 @@
 
 ⋆｡‧˚ʚ๋heh.., if i hv dnt/dni in my name, it means i don't want to be bothered/int w anyone, and that i'm in a bad mood or upset. i do **NOT** hv a touch trigger w pixels. don't start randomly assuming things omfg.ɞ˚‧｡⋆
 
-༄˖°ʚଓ˚no, you're **NOT** allowed to copy or take inspo anything on my page, things in my links and skins all of a sudden. at the least ask, but i'll probably say no.୭.⁺₊✧
+༄˖°ʚଓ˚no, you're **NOT** allowed to copy or take inspo anything on my page, things in my links and skins all of a sudden. at the least ask, but i'll probs say no.୭.⁺₊✧
 
 ✦
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=starrylumi&label=˗ˏˋcounting%20stars´ˎ˗&color=a8954d&style=flat" alt="starrylumi" /> </p>
