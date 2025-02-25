@@ -2,9 +2,9 @@
 
 ✦
 
-₊˚ʚ ᗢ₊˚namez u can call me r ; willow, lumi, silvia - idm any nicknames that r given ><₊.ɞ˚‧｡⋆
+₊˚ʚ ᗢ₊˚namez u can call me r ; willow, lumi, silvia - idm any nicknames that r given ><.₊ɞ˚‧｡⋆
 
-‧͙⁺˚*･༓☾my pronouns are she/they - bisexual ,, female!༊*·˚
+౨ৎ˚₊‧my pronouns are she/they - bisexual ,, female!࿔*:･
 
 ⊱˚₊‧c+h & int r welcome at all times!! ꒰ unless said so in name. ꒱, PLEASE do... ꒰ i need more friends...⋆｡‧˚
 
