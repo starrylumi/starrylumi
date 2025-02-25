@@ -2,11 +2,11 @@
 
 ✦
 
-₊˚ʚ ᗢ₊˚namez u can call me r ; willow, lumi, silvia - idm any nicknames that r given ><₊˚⊹♡𓍢𓍢ִ໋
+₊˚ʚ ᗢ₊˚namez u can call me r ; willow, lumi, silvia - idm any nicknames that r given ><₊.ɞ˚‧｡⋆
 
 ‧͙⁺˚*･༓☾my pronouns are she/they - bisexual ,, female!༊*·˚
 
-⊱˚₊‧c+h & int r welcome at all times!! ꒰ unless said so in name. ꒱, PLEASE do... ꒰ i need more friends... ꒱ؘ࿐ ࿔*:･
+⊱˚₊‧c+h & int r welcome at all times!! ꒰ unless said so in name. ꒱, PLEASE do... ꒰ i need more friends...⋆｡‧˚
 
 ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, if so, w2i w me, but i check my screen from time to time!✧ˊˎ˗
 
