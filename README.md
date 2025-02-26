@@ -1,3 +1,11 @@
+mass announcement of the week !
+
+"[Hiding skin] he's bouncing on my booty cheeks, I like the way he rides,I can hardly breathe when he's pumping deep inside I kiss him on his neck and then he kisses on my bussy call him "daddy" when I holler man"
+
+"[Hiding skin] Daddy" - ivy
+
+✧
+
 ![5257a0ceb224270a21cbb758f892f4e0](https://github.com/user-attachments/assets/6c23c197-8ac2-481b-bf23-69b68c69075c)
 
 ✦
