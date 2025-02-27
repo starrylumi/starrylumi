@@ -1,8 +1,10 @@
-mass announcement of the week !
+mass announcement of the week ! ( take these as a joke pls )
 
 "[Hiding skin] he's bouncing on my booty cheeks, I like the way he rides,I can hardly breathe when he's pumping deep inside I kiss him on his neck and then he kisses on my bussy call him "daddy" when I holler man" - ivy
 
 "[Hiding skin] Daddy" - also ivy
+
+[🍁- | ᴅɴᴄ ' ᴄ+ʜ(ᴋᴢsᴄ ᴅɴɪ)] h-hi uwo I-I like you..! P-pls dont push me away!! >_< Be m-my girlfriend p-pweese!!! >.< Owowowo uwu 😍😍😍😘😘😘😘😳😳😊😊❤❤❤💝💝💝💘💘💘💌💌💋💋💋💗💗💗😻😻😍😍😘😘😘😳😳💌❤😊😘💋😍😊 - ivy again !
 
 ✧
 
