@@ -5,7 +5,8 @@ mass announcement of the week ! ( take these as a joke pls )
 "[Hiding skin] Daddy" - also ivy
 
 [🍁- | ᴅɴᴄ ' ᴄ+ʜ(ᴋᴢsᴄ ᴅɴɪ)] h-hi uwo I-I like you..! P-pls dont push me away!! >_< Be m-my girlfriend p-pweese!!! >.< Owowowo uwu 😍😍😍😘😘😘😘😳😳😊😊❤❤❤💝💝💝💘💘💘💌💌💋💋💋💗💗💗😻😻😍😍😘😘😘😳😳💌❤😊😘💋😍😊 - ivy again !
-
+ hi ivy i see u
+ 
 ✧
 
 ![5257a0ceb224270a21cbb758f892f4e0](https://github.com/user-attachments/assets/6c23c197-8ac2-481b-bf23-69b68c69075c)
