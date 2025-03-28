@@ -16,7 +16,7 @@
 
 ⋅˚₊‧.୨please note that i am a **MINOR**. stop whispering me random and freaky ahh things that i do NOT need to know of. it's simply annoying, and i don't want to deal w yr crap.୧‧₊˚⋅
 
-༄˖°ʚଓ˚no, you're **NOT** allowed to copy or take inspo anything on my page, things in my links and skins all of a sudden. at the least ask, but i'll probs say no.୭.⁺₊✧
+༄˖°ʚଓ˚ssttrictly dncopy/inspoucf + ask first, thank u<3୭.⁺₊✧
 
 ✦
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=starrylumi&label=˗ˏˋcounting%20stars´ˎ˗&color=a8954d&style=flat" alt="starrylumi" /> </p>
