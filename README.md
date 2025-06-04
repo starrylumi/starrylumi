@@ -14,7 +14,7 @@
 
 ⁺✧₊
 
-⋅˚₊‧.୨please note that i am a **MINOR**. stop whispering me random and freaky ahh things that i do NOT need to know of. it's simply annoying, and i don't want to deal w yr crap.୧‧₊˚⋅
+⋅˚₊‧.୨i often disconnect a LOT or just leave after getting too bored, so don't mind me rejoining then leaving afterwards...୧‧₊˚⋅
 
 ༄˖°ʚଓ˚ssttrictly dncopy/inspoucf + ask first, thank u<3୭.⁺₊✧
 
