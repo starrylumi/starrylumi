@@ -1,3 +1,9 @@
+honorable mention of the week : ivy / ice cubes !!
+
+![https://media.discordapp.net/attachments/1364885674217574470/1394289944146477086/image.png?ex=68764533&is=6874f3b3&hm=6985b590ffd3bc255db939700711d7c75ae7f779c8e01abb61e13a09ceb9f2d6&=&format=webp&quality=lossless&width=984&height=287)
+
+✧
+
 ![5257a0ceb224270a21cbb758f892f4e0](https://github.com/user-attachments/assets/6c23c197-8ac2-481b-bf23-69b68c69075c)
 
 ✦
