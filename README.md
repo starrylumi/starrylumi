@@ -14,7 +14,7 @@
 
 ⁺✧₊
 
-⋅˚₊‧.୨i often disconnect or just leave after getting too bored, so don't mind me rejoining then leaving repeatedly...୧‧₊˚⋅
+⋅˚₊‧.୨i often disconnect due to ass wifi or just leave after getting too bored, so don't mind me rejoining then leaving repeatedly...୧‧₊˚⋅
 
 ༄˖°ʚଓ˚ssttrictly dncopy/inspoucf + ask first, thank u<3୭.⁺₊✧
 
