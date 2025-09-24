@@ -6,7 +6,7 @@
 
 ౨ৎ˚₊‧my pronouns are she/they - bisexual ,, female!࿔*:･
 
-⊱˚₊‧c+h & int r welcome at all times!! ꒰ unless said so in name. ꒱, PLEASE do... i need more friends... if u don't see me w anyone PLSS c+h w me screams!!!⋆｡‧˚
+⊱˚₊‧c+h & int r welcome at all times!! ꒰ unless said so in name. ꒱, PLEASE do... i need more friends... if u don't see me w any1 PLS c+h w me!!!⋆｡‧˚
 
 ʚɞ⁺˖⸝⸝im mostly offtab, semi-afk or multitasking, if so, w2i w me, but i check my screen from time to time!✧ˊˎ˗
 
