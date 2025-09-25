@@ -16,7 +16,7 @@
 
 ⋅˚₊‧.୨i often disconnect or just leave after getting too bored, don't mind me heh...୧‧₊˚⋅
 
-༄˖°ʚଓ˚ssttrictly dncopyucf + ask first, thank u<3୭.⁺₊✧
+༄˖°ʚଓ˚ssttrictly dncopy/inspoucf + ask first, thank u<3୭.⁺₊✧
 
 ✦
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=starrylumi&label=˗ˏˋcounting%20stars´ˎ˗&color=a8954d&style=flat" alt="starrylumi" /> </p>
