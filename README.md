@@ -1,3 +1,7 @@
+> screenshot of the week 😭✌️ ( read info below )
+
+![image alt](https://github.com/starrylumi/starrylumi/blob/0ebebd81a5e33f650868c77c41cef123ffa34364/Screenshot%202025-12-07%20215022.png)
+
 ![5257a0ceb224270a21cbb758f892f4e0](https://github.com/user-attachments/assets/6c23c197-8ac2-481b-bf23-69b68c69075c)
 
 ✦
