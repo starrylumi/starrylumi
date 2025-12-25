@@ -1,6 +1,6 @@
-> screenshot of the week 😭✌️ DONT KILL ME PLS, self love core ( read info below )
+> screenshot of the week...? who is this... joke or not, im scared... ( read info below )
 
-![image alt](https://github.com/starrylumi/starrylumi/blob/64c4701633cfc32feb5b1cd3c9706ac811483815/Screenshot%202025-12-23%20220711.png)
+![image alt](https://github.com/starrylumi/starrylumi/blob/12d9dafd35109614af700518d9559899a148c5c8/image.png)
 
 ⁺✧₊
 
