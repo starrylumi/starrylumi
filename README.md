@@ -1,4 +1,4 @@
-> screenshot of the week...? who is this... joke or not, im scared... ( read info below )
+> screenshot of the week...? who is this... joke or not, im scared... WHY IS THE IMAGE SO BIG ( read info below )
 
 ![image alt](https://github.com/starrylumi/starrylumi/blob/12d9dafd35109614af700518d9559899a148c5c8/image.png)
 
