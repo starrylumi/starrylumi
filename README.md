@@ -1,9 +1,3 @@
-> screenshot of the week/month..? who is this... joke or not, im scared... WHY IS THE IMAGE SO BIG ( read info below )
-
-![image alt](https://github.com/starrylumi/starrylumi/blob/12d9dafd35109614af700518d9559899a148c5c8/image.png)
-
-⁺✧₊
-
 ![5257a0ceb224270a21cbb758f892f4e0](https://github.com/user-attachments/assets/6c23c197-8ac2-481b-bf23-69b68c69075c)
 
 ✦
