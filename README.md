@@ -20,3 +20,7 @@
 
 ✦
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=starrylumi&label=˗ˏˋcounting%20stars´ˎ˗&color=a8954d&style=flat" alt="starrylumi" /> </p>
+
+⁺✧₊
+
+yo rare sight of me changing pfps after matching w tranky for a year+ LMAO, it feels so weird changing it now, the old pfp fit well ngl... gotta search for a new suitable one...
