@@ -16,7 +16,7 @@
 
 ⋅˚₊‧.୨i often disconnect or just leave after getting too bored, don't mind me heh...୧‧₊˚⋅
 
-༄˖°ʚଓ˚ssttrictly dncopyucf/inspouf + ask first, thank u<3୭.⁺₊✧
+༄˖°ʚଓ˚ssttrictly dncopyucf + ask first, thank u<3୭.⁺₊✧
 
 ✦
 
