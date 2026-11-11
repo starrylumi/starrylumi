@@ -27,3 +27,4 @@
 yo rare sight of me changing pfps after matching w tranky for a year+ LMAO, it feels so weird changing it now, the old pfp fit well ngl... gotta search for a new suitable one... ' i kinda forgot how to make skins in pt
 
 i cant choose a name guys... ; willow , lumi , sierra or minmin/min . . .
+ please keep me away from money omg im spending sm on lumine merches.
